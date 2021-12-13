@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KatOnTheWeb
+- 👀 I’m interested in studio photography, entrepreneur business creative genius shit ;) 
+- 🌱 I’m currently learning my hyperfocus of the month
+- 📫 How to reach me Kat@KatOnTheWeb.com
